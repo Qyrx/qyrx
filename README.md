@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... quantum photonics, artificail intelligence, material science, nanoscience
 - 📫 How to reach me: ...GyraxCollo@proton.me
 - 😄 Pronouns: ... HE
-- ⚡ Fun fact: ... I am  BI
+- ⚡ Fun fact: ... I love weed from here to heaven and back 
 -->
